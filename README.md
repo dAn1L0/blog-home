@@ -1,4 +1,4 @@
-## Blog Home (in construction :) )
+## Blog Home (in construction)
 
 ## Getting Started
 
